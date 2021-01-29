@@ -29,6 +29,9 @@ Here are some more changes...
 - Ted
 
 
+So I am still being Carol, funny I don`t feel like a Carol at all, but that`s ok with me. 
+
+
 
 
 
